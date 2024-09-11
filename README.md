@@ -4,7 +4,7 @@
 - 💞️ Tô solteiro, procuro namoradas
 - 📫 Moro no panorama II
 - 😄 gosto de dar capa no firu firu
-- ⚡ não sei o que escrever mais...
+- ⚡ Fã do menino Ney
 
 <!---
 GustavoMiranda2009/GustavoMiranda2009 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
