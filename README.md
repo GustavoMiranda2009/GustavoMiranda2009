@@ -1,5 +1,5 @@
 - 👋 oi, sou o Gustavo Miranda
-- 👀 meu némero na chamada é 18
+- 👀 meu número na chamada é 18
 - 🌱 Atualmente estou trabalhando na BRF
 - 💞️ Tô solteiro, procuro namoradas
 - 📫 Moro no panorama II
