@@ -1,5 +1,5 @@
 ![neyney-neymar](https://github.com/user-attachments/assets/6a1df2e6-ba22-4aa6-bf60-99f5efd7c0e0)- 👋 oi, sou o Gustavo Miranda
-- 👀 meu número na chamada é 18
+- 👀 pega o insta aí guh_.miranda
 - 🌱 Atualmente estou trabalhando na BRF
 - 💞️ Tô solteiro, procuro namoradas
 - 📫 Moro no panorama II
