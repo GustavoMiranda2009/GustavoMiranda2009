@@ -2,7 +2,7 @@
 - 👀 pega o insta aí guh_.miranda
 - 🌱 Atualmente estou trabalhando na BRF
 - 💞️ Tô solteiro, procuro namoradas
-- 📫 Moro no panorama II
+- 📫 Moro no panorama I
 - 😄 gosto de dar capa no firu firu
 - ⚡ Fã do menino Ney
 
